@@ -37,6 +37,7 @@ i am a fictionkin and a fictionlink!! i do not mind 'doubles' but i dont really 
   tavros nitram                karkat vantas  <br>  
   eridan ampora                pinkie pie     <br>  
                                latula pyrope  <br>     
+</p>
   
 im in alot of fandoms!!
   tadc,dandys world(kinda?im not a fan nor a supporter of qwel,i just like the game and i HATE the fandom) murder drones,homestuck(duh),undertale/deltarune(i hate the fandoms for both),mlp,barbie,i love cosplaying too,not sure if that counts,,,i also like sewing, making kandi, and art or drawing! <br>
