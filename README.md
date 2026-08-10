@@ -12,7 +12,7 @@
 
 <br><br>
 
-<h2>txt txt txt txt </h2>
+<h2>I AM A MINOR!! </h2>
 
 <p>
 basic stuff <b></b><br>
@@ -29,11 +29,17 @@ hihi im zenny!!im on pony town like ALOT so you can probably find me any time of
 
 <br><br>
 
-<h3> txt txt txt </h3>
+<h3> other info </h3>
 
 <p>
-[stuff about yourself]<br>
-[interests]<br>
+i am a fictionkin and a fictionlink!! i do not mind 'doubles' but i dont really like it when people claim that theyre the "#1. _____"
+  fictionkin list            fictionlink list
+  tavros nitram                karkat vantas
+  eridan ampora                pinkie pie
+                               latula pyrope <br>     
+  
+im in alot of fandoms!!
+  tadc,dandys world(kinda?im not a fan nor a supporter of qwel,i just like the game and i HATE the fandom) murder drones,homestuck(duh),undertale/deltarune(i hate the fandoms for both),mlp,barbie,i love cosplaying too,not sure if that counts,,,i also like sewing, making kandi, and art or drawing! <br>
 [whatever else you want here]
 </p>
 
