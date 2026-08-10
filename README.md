@@ -32,7 +32,8 @@ hihi im zenny!!im on pony town like ALOT so you can probably find me any time of
 <h3> other info </h3>
 
 <p>
-i am a fictionkin and a fictionlink!! i do not mind 'doubles' but i dont really like it when people claim that theyre the "#1. _____"
+i am a fictionkin and a fictionlink!! i do not mind 'doubles' but i dont really like it when people claim that theyre the "#1. _____"  <br>
+  
 fictionlink list <br>  
 karkat vantas  <br>  
 pinkie pie     <br>  
