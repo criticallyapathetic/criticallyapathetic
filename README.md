@@ -33,14 +33,19 @@ hihi im zenny!!im on pony town like ALOT so you can probably find me any time of
 
 <p>
 i am a fictionkin and a fictionlink!! i do not mind 'doubles' but i dont really like it when people claim that theyre the "#1. _____"
-  fictionkin list            fictionlink list <br>  
-  tavros nitram                karkat vantas  <br>  
-  eridan ampora                pinkie pie     <br>  
-                               latula pyrope  <br>     
+fictionlink list <br>  
+karkat vantas  <br>  
+pinkie pie     <br>  
+latula pyrope  <br>     
 </p>
+
+<p>
+fictionkin list <br>
+  tavros nitram <br>
+  eridan ampora <br>
   
 im in alot of fandoms!!
-  tadc,dandys world(kinda?im not a fan nor a supporter of qwel,i just like the game and i HATE the fandom) murder drones,homestuck(duh),undertale/deltarune(i hate the fandoms for both),mlp,barbie,i love cosplaying too,not sure if that counts,,,i also like sewing, making kandi, and art or drawing! <br>
+  tadc,dandys world(kinda?im not a fan nor a supporter of qwel,i just like the game and i HATE the fandom) murder drones,homestuck(duh),owm/stranger things,undertale/deltarune(i hate the fandoms for both),mlp,barbie,there probably tons more that i dont remember i love cosplaying too,not sure if that counts,,,i also like sewing, making kandi, and art or drawing! <br>
 [whatever else you want here]
 </p>
 
