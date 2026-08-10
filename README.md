@@ -15,7 +15,7 @@
 <h2>txt txt txt txt </h2>
 
 <p>
-basic stuff <b>txt</b><br>
+basic stuff <b></b><br>
 </p>
 
 <p>
