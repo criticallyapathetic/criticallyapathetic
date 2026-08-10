@@ -32,7 +32,7 @@ hihi im zenny!!im on pony town like ALOT so you can probably find me any time of
 <h3> other info </h3>
 
 <p>
-i am a fictionkin and a fictionlink!! i do not mind 'doubles' but i dont really like it when people claim that theyre the "#1. _____"  <br>
+i am a fictionkin and a fictionlink!!(and a yumeshipper)i do not mind 'doubles' but i dont really like it when people claim that theyre the "#1. _____" so doubles on thin ice,, <br>
 
 <p>
 fictionlink list <br>  
@@ -46,10 +46,13 @@ fictionkin list <br>
 tavros nitram <br>
 eridan ampora <br>
 </p>
+
+<p> 
+gamzee yumeshipper💜 <br>
+</p>
   
 im in alot of fandoms!!
   tadc,dandys world(kinda?im not a fan nor a supporter of qwel,i just like the game and i HATE the fandom) murder drones,homestuck(duh),owm/stranger things,undertale/deltarune(i hate the fandoms for both),mlp,barbie,there probably tons more that i dont remember i love cosplaying too,not sure if that counts,,,i also like sewing, making kandi, and art or drawing! <br>
-[whatever else you want here]
 </p>
 
 <br>
