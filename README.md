@@ -44,6 +44,7 @@ latula pyrope  <br>
 fictionkin list <br>
   tavros nitram <br>
   eridan ampora <br>
+</p>
   
 im in alot of fandoms!!
   tadc,dandys world(kinda?im not a fan nor a supporter of qwel,i just like the game and i HATE the fandom) murder drones,homestuck(duh),owm/stranger things,undertale/deltarune(i hate the fandoms for both),mlp,barbie,there probably tons more that i dont remember i love cosplaying too,not sure if that counts,,,i also like sewing, making kandi, and art or drawing! <br>
