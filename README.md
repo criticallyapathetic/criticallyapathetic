@@ -20,7 +20,8 @@ txt txt txt
 </p>
 
 <p>
-[short introduction goes here]
+hihi im zenny!!im on pony town like ALOT so you can probably find me any time of the day unless its like 3am lol
+  i am heavily touch-comforted and i love being around people and cuddles n hugs n stuff^u^ but while this is being said,i can also get very over stimulated so i may run away to another spot/server/island,just whisper after a minute or so!
 </p>
 
 <br>
