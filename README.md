@@ -66,11 +66,11 @@ im in alot of fandoms!!
 <p>
 ai "artists", pedophiles/zoophiles/maps/loli's/ageplayers/racists/trans+homophobes <br>
 ERIN/j <br>
-  i am VERY sensitive. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i ALSO USE TYPING QUIRKS SOMETIMES}:)
+  i am VERY sensitive and i get upset and/or cry super easily,i can act very rash while upset and may say things i do not mean or do things i will regret later,its best to ignore me or iwec while this happens. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i ALSO USE TYPING QUIRKS SOMETIMES}:)
 </p>
 
 <p>
-txt txt
+
 </p>
 
 <br>
