@@ -66,6 +66,7 @@ im in alot of fandoms!!
 <p>
 ai "artists", pedophiles/zoophiles/maps/loli's/ageplayers/racists/trans+homophobes <br>
 ERIN/j <br>
+  i am VERY sensitive. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i ALSO USE TYPING QUIRKS SOMETIMES}:)
 </p>
 
 <p>
