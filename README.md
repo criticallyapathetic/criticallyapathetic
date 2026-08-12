@@ -64,9 +64,8 @@ im in alot of fandoms!!
 <h3> meow </h3>
 
 <p>
-txt txt txt txt <br>
-txt txt txt <br>
-txt txt txt
+ai "artists", pedophiles/zoophiles/maps/loli's/ageplayers/racists/trans+homophobes <br>
+ERIN/j <br>
 </p>
 
 <p>
