@@ -32,7 +32,7 @@ hihi im zenny!!im on pony town like ALOT so you can probably find me any time of
 <h3> other info </h3>
 
 <p>
-i am a fictionkin and a fictionlink!!(and a yumeshipper)i do not mind 'doubles' but i dont really like it when people claim that theyre the "#1. _____" so doubles on thin ice,, <br>
+i am a fictionkin and a fictionlink!!(and a yumeshipper)i do not mind doubles but i dont really like it when people claim that theyre the "number one (example)" so doubles of fictkins on thin ice,, <br>
 
 <p>
 fictionlink list <br>  
@@ -45,10 +45,13 @@ latula pyrope  <br>
 fictionkin list <br>
 tavros nitram <br>
 eridan ampora <br>
+dirk strider <br>
+vriska serket <br>
+  yes i do really think im these chracters,i dont need people saying im 'crazy' or whatever- i know who i am and i get reminded of it constantly,shut up
 </p>
 
 <p> 
-gamzee yumeshipper💜 <br>
+gamzee yume!!(hypersharing((idk what that means))) <br>
 </p>
   
 im in alot of fandoms!!
