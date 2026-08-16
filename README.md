@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="[https://placehold.co/1000x150/ff4fa3/ffffff?text=CRITICALLYAPATHETIC" width="100%">
+<img src="https://64.media.tumblr.com/a8e42660e00e96e71e6399bed3f53f10/0de829918baf6867-3e/s1280x1920/39e8d30445d94d65543968b7fc4ef1808fde6af1.pnj" width="100%">
 
 <br>
 
@@ -8,7 +8,7 @@
 
 <br><br>
 
-<img src="https://placehold.co/900x25/ff4fa3/ffffff?text=+">
+<img src="https://64.media.tumblr.com/5168d87804e3aaa581a0712b7231301a/0de829918baf6867-52/s540x810/5f8657a001a063dd6e9324b3566d0fc5c76a4df3.pnj" width="100%">
 
 <br><br>
 
@@ -83,17 +83,28 @@ ERIN/j <br>
 <br><br>
 
 <p>
-<img src="YOUR_STAMP_URL_HERE" width="100">
-<img src="YOUR_STAMP_URL_HERE" width="100">
-<img src="YOUR_STAMP_URL_HERE" width="100">
-<img src="YOUR_STAMP_URL_HERE" width="100">
-</p>
-
+<img src="https://64.media.tumblr.com/138eb0f35f5ad2c5fea9d75a635e8a77/0de829918baf6867-d4/s1280x1920/b8b2ee28cdcc9fd982c39862ab811a74294a8b4b.pnj" width="2000">
 <br>
 
-<img src="https://placehold.co/900x25/65e6a8/ffffff?text=+">
-
+<p>
+<img src="https://64.media.tumblr.com/fb95e03bba283da5ccc5e159e6408bca/3ad32b5fb2d893c8-0c/s250x400/5a5434c9d012bd3eeff9d8bb10d0770ed6f79af3.pnj" width="500">
 <br>
+
+<p>
+<img src="https://64.media.tumblr.com/655e88f67aaef7f34dfa26e6230b010e/8c70cc2c0389c8b1-09/s250x400/6c12ed8b711b0a1a1fe805c0fdb06e27758a4d0e.gifv" width="350">
+<br>
+
+<p>
+<img src="Yhttps://64.media.tumblr.com/13de7225d005104f5b0af7244d2f641d/7b1d20d46f0f67b0-0c/s100x200/407f01a50c24c167481e34f3404cef609501e917.pnj" width="350">
+<br>
+
+<p>
+<img src="https://64.media.tumblr.com/55b72a4d8878f53dddbc60fc03afb706/c206115c78c227bb-59/s640x960/5cbc2ab62aa5bff55d07214b22c7c891e544cd7f.gifv" width="350">
+<br>
+
+<p>
+<img src="https://64.media.tumblr.com/7df2e98a6372c8fb34a059ce60fa420f/0de829918baf6867-48/s1280x1920/d27ecede94221d6abdb08cdfad32603ae11b1e61.pnj" width="2000">
+
 
 <sub> ilmbfsm </sub>
 
