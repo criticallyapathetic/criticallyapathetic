@@ -12,7 +12,9 @@
 
 <br><br>
 
-<h2>I AM A MINOR!! </h2>
+<h2>ILMBF </h2>
+
+<img src="https://64.media.tumblr.com/5cf3798466382ff8675f612683e78a71/76f6621c96c1ea9f-f4/s2048x3072/6f2382bdce30229e2b50e569ccaf216716fd2849.pnj" width="100%">
 
 <p>
 basic stuff <b></b><br>
@@ -25,7 +27,7 @@ hihi im zenny!!im on pony town like ALOT so you can probably find me any time of
 
 <br>
 
-<img src="https://placehold.co/700x12/ffdc5e/ffffff?text=">
+<img src="https://64.media.tumblr.com/115c946f82378c1a0642a3211e677214/c3b218973bde2fc8-24/s400x600/e283c27e7cd500425bae86fabac2ea7bfc099669.gifv" width="1000%">
 
 <br><br>
 
@@ -50,8 +52,11 @@ vriska serket <br>
   yes i do really think im these chracters,i dont need people saying im 'crazy' or whatever- i know who i am and i get reminded of it constantly,shut up
 </p>
 
+<img src="https://64.media.tumblr.com/280223884e4cb3c377cf0829a21ca4cd/a4c71817eda70ea5-14/s500x750/73c70190c7f92fc5c8e5af9a1c1f7c32a35a9421.gifv" width="1000">
+
+
 <p> 
-gamzee yume!!(hypersharing((idk what that means))) <br>
+gamzee yume!!(hypersharing((idk what that means,doubles pls int^^))) <br>
 </p>
   
 im in alot of fandoms!!
@@ -60,17 +65,19 @@ im in alot of fandoms!!
 
 <br>
 
-<img src="https://placehold.co/700x12/65d9ff/ffffff?text=">
+<img src="https://64.media.tumblr.com/78fef9900f5b730608b6b712765aba49/3a4869d0eede07fe-69/s400x600/4bd1ef38a6c2b74b4f0836a0f49a2a2d6f0e77b4.pnj" width="1000%">
 
 <br><br>
 
-<h3> meow </h3>
+<h3> mreow(dni+byi) </h3>
 
 <p>
-ai "artists", pedophiles/zoophiles/maps/loli's/ageplayers/racists/trans+homophobes/ANTI-WOKE PEOPLE/if you dont support therians+furries/anti neo pronouns+genders n stuff <br>
-ERIN/j <br>
-  i am VERY sensitive and i get upset and/or cry super easily,i can act very rash while upset and may say things i do not mean or do things i will regret later,its best to ignore me or iwec while this happens. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i ALSO USE TYPING QUIRKS SOMETIMES}:)
-</p>
+ai "artists", pedophiles/zoophiles/maps/loli's/ageplayers/racists/trans+homophobes/ANTI-WOKE PEOPLE/if you dont support therians+furries/anti neo pronouns+genders n stuff,YOU/J
+<br>
+
+  <p>
+  i am VERY sensitive and i get upset and/or cry super easily,i can act very rash while upset and may say things i do not mean or do things i will regret later,its best to ignore me or iwec while this happens. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i also use typing quirks sometimes or misspell things a LOT. i ship and let people ship-(or however that went-) idc if youre a darkshipper or stufflike that,if i like a post it doesnt mean im a darkshipper,we all coexist with them and they have their reasons for it-but i dont like darkshipping but im not gonna hate on people who do it. theyre still people after all and if you dont like me interacting with them then block me #thatsall? 
+<br>
 
 <p>
 
@@ -78,7 +85,7 @@ ERIN/j <br>
 
 <br>
 
-<img src="https://placehold.co/700x12/bb7cff/ffffff?text=">
+<img src="https://64.media.tumblr.com/9407e2a95ba1ed4b6ac0a304ea8731d1/07e572ccea148a5e-87/s250x400/a7cb1ee30b14437ea3702c34365853931c816c62.gifv">
 
 <br><br>
 
@@ -91,7 +98,11 @@ ERIN/j <br>
 <br>
 
 <p>
-<img src="https://64.media.tumblr.com/655e88f67aaef7f34dfa26e6230b010e/8c70cc2c0389c8b1-09/s250x400/6c12ed8b711b0a1a1fe805c0fdb06e27758a4d0e.gifv" width="350">
+<img src="https://64.media.tumblr.com/9fbb997bb8513dae8949c6e3bcaa65db/a0685db9deec1df4-d3/s250x400/54a573c636c27ee152d28da39a87bb5a8be6d247.gifv" width="500">
+
+
+<p>
+<img src="https://64.media.tumblr.com/655e88f67aaef7f34dfa26e6230b010e/8c70cc2c0389c8b1-09/s250x400/6c12ed8b711b0a1a1fe805c0fdb06e27758a4d0e.gifv" width="500">
 <br>
 
 <p>
@@ -99,7 +110,7 @@ ERIN/j <br>
 <br>
 
 <p>
-<img src="https://64.media.tumblr.com/55b72a4d8878f53dddbc60fc03afb706/c206115c78c227bb-59/s640x960/5cbc2ab62aa5bff55d07214b22c7c891e544cd7f.gifv" width="350">
+<img src="https://64.media.tumblr.com/eca56a8eb22e4ece2eadcd563625cb78/0de829918baf6867-5b/s1280x1920/00d08385a799f21ca7820b96312a7d13d1cee831.gifv" width="3000">
 <br>
 
 <p>
@@ -108,6 +119,6 @@ ERIN/j <br>
 
 <sub> ilmbfsm </sub>
 
-<sub> ⚣️ ‧₊˚🌈✩ ₊˚🫧⊹♡ </sub>
+<sub> 🎱 ── [arachnidsGrip signing out.] ── 🎱 </sub>
 
 </div>
