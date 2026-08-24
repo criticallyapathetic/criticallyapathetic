@@ -1,9 +1,5 @@
 
 
-<img src="https://img1.picmix.com/output/pic/normal/1/6/3/2/13662361_e5daf.gif" width ="200">
-
-
-
 
 <div align="center">
 
@@ -56,7 +52,7 @@ tavros nitram <br>
 eridan ampora <br>
 dirk strider <br>
 vriska serket <br>
-  yes i do really think im these chracters,i dont need people saying im 'crazy' or whatever- i know who i am and i get reminded of it constantly,shut up
+ 
 </p>
 
 <img src="https://64.media.tumblr.com/280223884e4cb3c377cf0829a21ca4cd/a4c71817eda70ea5-14/s500x750/73c70190c7f92fc5c8e5af9a1c1f7c32a35a9421.gifv" width="1000">
@@ -83,7 +79,8 @@ ai "artists", pedophiles/zoophiles/maps/loli's/ageplayers/racists/trans+homophob
 <br>
 
   <p>
-  i am VERY sensitive and i get upset and/or cry super easily,i can act very rash while upset and may say things i do not mean or do things i will regret later,its best to ignore me or iwec while this happens. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i also use typing quirks sometimes or misspell things a LOT. i ship and let people ship-(or however that went-) idc if youre a darkshipper or stufflike that,if i like a post it doesnt mean im a darkshipper,we all coexist with them and they have their reasons for it-but i dont like darkshipping but im not gonna hate on people who do it. theyre still people after all and if you dont like me interacting with them then block me #thatsall? 
+  SUSPECTING osdd-1a(?),autism,i sh,but i dont glorify it,i do openly draw vent art though-thats all ill say unless you ask for more..
+    i am VERY sensitive and i get upset and/or cry super easily,i can act very rash while upset and may say things i do not mean or do things i will regret later,its best to ignore me or iwec while this happens. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i also use typing quirks sometimes or misspell things a LOT. i ship and let people ship-(or however that went-) idc if youre a darkshipper or proshipper or things like that- if your art is like incest them im obv not gonna like nor condone it irl but its whatever. do what you want man idc,also i may repost or like someones art thats not incest or something but the artist is a dark/proshipper
 <br>
 
 <p>
