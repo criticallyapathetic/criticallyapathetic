@@ -59,7 +59,7 @@ vriska serket <br>
 
 
 <p> 
-gamzee yume!!(hypersharing((idk what that means,doubles pls int^^))) <br>
+gamzee makara selfshipper kinda?? like i just ship my trollsona with him lol and hes my fav character but i dont think im comfy with the term yumeshipper <br>
 </p>
   
 im in alot of fandoms!!
