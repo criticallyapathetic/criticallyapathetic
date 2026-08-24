@@ -72,10 +72,10 @@ im in alot of fandoms!!
 
 <br><br>
 
-<h3> mreow(dni+byi) </h3>
+<h3> mreow(dni? +byi) </h3>
 
 <p>
-ai "artists", pedophiles/zoophiles/maps/loli's/ageplayers/racists/trans+homophobes/ANTI-WOKE PEOPLE/if you dont support therians+furries/anti neo pronouns+genders n stuff,YOU/J
+ i do not have a DNI list because it's the internet and i don't care,so yeah whatever
 <br>
 
   <p>
