@@ -79,8 +79,8 @@ im in alot of fandoms!!
 <br>
 
   <p>
-  SUSPECTING osdd-1a(?),autism,i sh,but i dont glorify it,i do openly draw vent art though-thats all ill say unless you ask for more..
-    i am VERY sensitive and i get upset and/or cry super easily,i can act very rash while upset and may say things i do not mean or do things i will regret later,its best to ignore me or iwec while this happens. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i also use typing quirks sometimes or misspell things a LOT. i ship and let people ship-(or however that went-) idc if youre a darkshipper or proshipper or things like that, its your art do whatever with it. i dont condone pedophilia+grooming and things like that though.
+  SUSPECTING osdd-1a(?),autism,ido have alot of vent art that can be graphic and may show it BUT I WILL ALWAYS ASK OK?
+    i am VERY sensitive and i get upset and/or cry super easily,i can act very rash while upset and may say things i do not mean or do things i will regret later,its best to ignore me or iwec while this happens. tonetags are very appreciated! i also have very bad mood swings and often go from 0 to 180,, i also use typing quirks sometimes or misspell things a LOT. i ship and let people ship-(or however that went-) idc if youre a darkshipper or proshipper or things like that, its your art do whatever with it. i dont condone pedophilia+grooming and things like that though
 <br>
 
 <p>
