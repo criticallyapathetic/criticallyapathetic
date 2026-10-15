@@ -7,7 +7,7 @@
 
 <br>
 
-<sub>hi im vriska/zenny/dirk meow okay?</sub>
+<sub>dirk</sub>
 
 <br><br>
 
