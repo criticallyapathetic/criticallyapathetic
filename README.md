@@ -37,7 +37,7 @@ hihi im zenny!!im on pony town like ALOT so you can probably find me any time of
 <h3> other info </h3>
 
 <p>
-i am a fictionkin and a fictionlink!!(and a yumeshipper)i do not mind doubles but i dont really like it when people claim that theyre the "number one (example)" so doubles of fictkins on thin ice,, <br>
+i am a fictionkin and a fictionlink!!(and a yumeshipper,,, kinda?? not really?? look down for more info!)i do not mind doubles but i dont really like it when people claim that theyre the "number one (example)" so doubles of fictkins on thin ice,, <br>
 
 
 <img src="https://64.media.tumblr.com/280223884e4cb3c377cf0829a21ca4cd/a4c71817eda70ea5-14/s500x750/73c70190c7f92fc5c8e5af9a1c1f7c32a35a9421.gifv" width="1000">
