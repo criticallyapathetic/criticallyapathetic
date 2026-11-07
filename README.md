@@ -24,8 +24,7 @@ basic stuff <b></b><br>
 </p>
 
 <p>
-hihi im zenny!!im on pony town like ALOT so you can probably find me any time of the day unless its like 3am lol
-  i am heavily touch-comforted and i love being around people and cuddles n hugs n stuff^u^ but while this is being said,i can also get very over stimulated so i may run away to another spot/server/island,just whisper after a minute or so!
+wip
 </p>
 
 <br>
@@ -37,18 +36,17 @@ hihi im zenny!!im on pony town like ALOT so you can probably find me any time of
 <h3> other info </h3>
 
 <p>
-i am a fictionkin and a fictionlink!!(and a yumeshipper,,, kinda?? not really?? look down for more info!)i do not mind doubles but i dont really like it when people claim that theyre the "number one (example)" so doubles of fictkins on thin ice,, <br>
+wip <br>
 
 
 <img src="https://64.media.tumblr.com/280223884e4cb3c377cf0829a21ca4cd/a4c71817eda70ea5-14/s500x750/73c70190c7f92fc5c8e5af9a1c1f7c32a35a9421.gifv" width="1000">
 
 
 <p> 
-gamzee makara self/yumeshipper kinda?? like i just ship my trollsona with him lol and hes my fav character but i dont think im comfy with the term yumeshipper <br>
+wip <br>
 </p>
   
-im in alot of fandoms!!
-  tadc,dandys world(kinda?im not a fan nor a supporter of qwel,i just like the game and i HATE the fandom) murder drones,homestuck(duh),owm/stranger things,undertale/deltarune(i hate the fandoms for both),mlp,barbie,there probably tons more that i dont remember i love cosplaying too,not sure if that counts,,,i also like sewing, making kandi, and art or drawing! <br>
+wip <br>
 </p>
 
 <br>
@@ -60,7 +58,7 @@ im in alot of fandoms!!
 <h3> mreow </h3>
 
 <p>
- i do not have a DNI list because it's the internet and i don't care,so yeah whatever
+ i do not have a DNI list 
 <br>
 
   <p>
