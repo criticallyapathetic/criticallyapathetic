@@ -24,7 +24,9 @@ basic stuff <b></b><br>
 </p>
 
 <p>
-wip
+hihi im dirk. or alex, whatever you wanna call me just nothin too feminine okay?
+  i am 14, i am agender and almondromantic + abrosexual. use he/they on me or else you will be slaughtered
+  
 </p>
 
 <br>
@@ -36,7 +38,20 @@ wip
 <h3> other info </h3>
 
 <p>
-wip <br>
+i like alot of things-almost anything i like, i dont associate with teh fandom of some of them though. 
+   
+  <br>
+
+
+<p>
+interests: <b></b><br>
+</p>
+
+
+<p>
+homestuck,cosplay,art/drawing,vast error.tadc,dandys world,minecraft,murder drones,ddlc,gacha life,mlp,love-live,bandom(mcr mostly),danganronpa,yttd,true crime,medical things,graphic design,yugioh,fnaf,crk, are all i can think of right now....
+  <br>
+
 
 
 <img src="https://64.media.tumblr.com/280223884e4cb3c377cf0829a21ca4cd/a4c71817eda70ea5-14/s500x750/73c70190c7f92fc5c8e5af9a1c1f7c32a35a9421.gifv" width="1000">
@@ -59,6 +74,7 @@ wip <br>
 
 <p>
  i do not have a DNI list 
+  theyre useless plus i dont care who interacts with me... please know t
 <br>
 
   <p>
