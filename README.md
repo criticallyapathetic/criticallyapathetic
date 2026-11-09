@@ -38,7 +38,7 @@ hihi im dirk. or alex, whatever you wanna call me just nothin too feminine okay?
 <h3> other info </h3>
 
 <p>
-i like alot of things-almost anything i like, i dont associate with teh fandom of some of them though. 
+i like alot of things-almost anything i like, i dont associate with the fandom of some of them though
    
   <br>
 
