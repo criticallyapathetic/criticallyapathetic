@@ -92,19 +92,15 @@ i have really intense moodswings and may ignore you please dont take it personal
 <br><br>
 
 
-<p>
-<img src="https://64.media.tumblr.com/612ae521b6edcd055505214494b03fb1/39e214e1726edad8-a4/s250x400/317f736c53ce74567a5b4b081cdf87440209d81c.pnj" width="500">
-<br>
 
-<p>
-<img src="https://64.media.tumblr.com/0bbe87d6df18b43dc67df61cc5967084/5da3a4f903a0b743-c6/s640x960/14150a04435a88efa768b642589380e7f05170e8.gifv" width="500">
+
 
 
 <p>
 <img src="https://media.discordapp.net/attachments/1531134576649306172/1569899734242697347/image-removebg-preview_-_2026-11-10T201933.356.png?ex=6af5228f&is=6af3d10f&hm=09e57b5a271282a33570923b0504d8ef56f853cabfca76097f6e3655b0593f01&=&format=webp&quality=lossless" width="500">
 <br>
 
-
+<sub> me and my boyfriend btw^ </sub>
 
 <p>
 <img src="https://64.media.tumblr.com/9f42dba3f7560a1c92266394f923a109/c57ea4799bde5b54-5e/s2048x3072/0f428e21a000da3d344c7590e0eabc0750cc63a8.pnj" width="3000">
@@ -112,8 +108,8 @@ i have really intense moodswings and may ignore you please dont take it personal
 
 
 
-<sub> ilmbfsm </sub>
+<sub> ilmbfsm <𝟑 .ᐟ </sub>
 
-<sub> 🎱 ── [dirk signing out] ── 🎱 </sub>
+<sub> 𓃗 ── [dirk signing out] ── 𓃗 </sub>
 
 </div>
