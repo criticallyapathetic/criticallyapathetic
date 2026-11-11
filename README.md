@@ -17,7 +17,7 @@
 
 <h2>ILMBF </h2>
 
-<img src="https://64.media.tumblr.com/5cf3798466382ff8675f612683e78a71/76f6621c96c1ea9f-f4/s2048x3072/6f2382bdce30229e2b50e569ccaf216716fd2849.pnj" width="100%">
+<img src="https://64.media.tumblr.com/d0dd972b85c15af63e1ee6017c1e94b2/f3b8d642ef55d151-40/s1280x1920/ffe57cc440f727a12b0acd33c3ed3fc3f2d1473c.pnj" width="100%">
 
 <p>
 basic stuff <b></b><br>
@@ -114,6 +114,6 @@ i have really intense moodswings and may ignore you please dont take it personal
 
 <sub> ilmbfsm </sub>
 
-<sub> 🎱 ── [arachnidsGrip signing out.] ── 🎱 </sub>
+<sub> 🎱 ── [dirk signing out] ── 🎱 </sub>
 
 </div>
