@@ -38,7 +38,7 @@ hihi im dirk. or alex, whatever you wanna call me just nothin too feminine okay?
 <h3> other info </h3>
 
 <p>
-i like alot of things-almost anything i like, i dont associate with the fandom of some of them though
+i like alot of things-almost anything i like, i dont associate with the fandom of some of them though since some are... ehh
    
   <br>
 
@@ -49,7 +49,7 @@ interests: <b></b><br>
 
 
 <p>
-homestuck,cosplay,art/drawing,vast error.tadc,dandys world,minecraft,murder drones,ddlc,gacha life,mlp,love-live,bandom(mcr mostly),danganronpa,yttd,true crime,medical things,graphic design,yugioh,fnaf,crk, are all i can think of right now....
+homestuck,cosplay,art/drawing,vast error.tadc,dandys world,minecraft,murder drones,ddlc,gacha life,mlp,love-live,bandom(mcr mostly),danganronpa,yttd,true crime,medical things,graphic design,yugioh,fnaf,crk, are all i can think of right now but theres tons more
   <br>
 
 
@@ -58,10 +58,11 @@ homestuck,cosplay,art/drawing,vast error.tadc,dandys world,minecraft,murder dron
 
 
 <p> 
-wip <br>
+note/extras <br>
 </p>
   
-wip <br>
+i have really intense moodswings and may ignore you please dont take it personally. im a very emotional person in general-im suuuper irritable which means the slightest thing can go wrong and i will get very upset. i have very bad memory-if we dont talk 24/7 you use an unfamiliar skin then i will probably forget who you are.. this can go any way, i have genuinely horrible memory
+  <br>
 </p>
 
 <br>
@@ -73,8 +74,7 @@ wip <br>
 <h3> mreow </h3>
 
 <p>
- i do not have a DNI list 
-  theyre useless plus i dont care who interacts with me... please know t
+ i do not have a DNI list i generally dont care who interacts with me but just dont like little kids dude
 <br>
 
   <p>
