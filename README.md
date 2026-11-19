@@ -97,10 +97,10 @@ i have really intense moodswings and may ignore you please dont take it as i hat
 
 
 <p>
-<img src="https://media.discordapp.net/attachments/1531134576649306172/1569899734242697347/image-removebg-preview_-_2026-11-10T201933.356.png?ex=6af5228f&is=6af3d10f&hm=09e57b5a271282a33570923b0504d8ef56f853cabfca76097f6e3655b0593f01&=&format=webp&quality=lossless" width="500">
+<img src="https://64.media.tumblr.com/2bf7871a7b64eea25a86f5d42b326f30/003bdd75a232dd1f-39/s1280x1920/0cc979963714e1c8cd01ea677919e920093a317b.pnj" width="500">
 <br>
 
-<sub> me and my boyfriend btw^ </sub>
+<sub> ^me and my boyfriend(thanks for putting up with my shit, i love you<3) </sub>
 
 <p>
 <img src="https://64.media.tumblr.com/9f42dba3f7560a1c92266394f923a109/c57ea4799bde5b54-5e/s2048x3072/0f428e21a000da3d344c7590e0eabc0750cc63a8.pnj" width="3000">
