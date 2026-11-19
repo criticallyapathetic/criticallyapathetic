@@ -75,7 +75,7 @@ this also means the slightest thing can go wrong and i will get very upset. i ha
 <h3> mreow </h3>
 
 <p>
- i do not have a DNI list i generally dont care who interacts with me but just dont like little kids dude
+ i dont have a dni list anyone can int! no flirting though ok
 <br>
 
   <p>
