@@ -61,7 +61,8 @@ homestuck,cosplay,art/drawing,vast error.tadc,dandys world,minecraft,murder dron
 note/extras <br>
 </p>
   
-i have really intense moodswings and may ignore you please dont take it as i hate you/mad at you or personally; along with this,i can be very selective on who i talk to and i might ignore you on purpose..i can be a very rash and emotional person,and i often overthink silly things and act in a bad manner because of this.  which means the slightest thing can go wrong and i will get very upset. i have very bad memory-if we dont talk 24/7 you use an unfamiliar skin then i will probably forget who you are.., i have genuinely horrible memory #sorry
+im p sure i have some of the most god-awful moodswings ever, im not permanantly upset but the chances of me responding are super low; along with this,i can be very selective on who i talk to and i might ignore you on purpose..,and i often am really rash and make decisions on a whim and then regret them like 2 seconds later ,please forgive me
+this also means the slightest thing can go wrong and i will get very upset. i have very bad memory-if we dont talk 24/7 you use an unfamiliar skin then i will probably forget who you are.., i have genuinely horrible memory #sorry
   <br>
 </p>
 
